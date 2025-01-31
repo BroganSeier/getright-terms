@@ -70,7 +70,7 @@ Your use of the App is also governed by our Privacy Policy, available at: https:
 ## 9. Contact
 
 For questions about these Terms, contact:
-* Email: broganseier15@gmail.com
+* Email: broganseier21@gmail.com
 
 ## 10. Termination
 
